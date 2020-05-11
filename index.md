@@ -1,3 +1,5 @@
+H1 Compras en Berlín
+
 En Berlín, no tiene que esforzarse por saber qué traer de la capital alemana como recuerdo. Hay una gran cantidad de tiendas de recuerdos, mercados de pulgas y las compras en Berlín siempre son un evento inolvidable.
 
 Casas de estilo gótico, la ciudad de piedra (¡incluso en una de las arterias principales hay un osito de piedra!), Líneas de calles uniformemente dibujadas, alemanes pedantes. ¡Berlín no se puede llamar la capital de la moda! ¿Cómo podemos hablar de diseño elegante, si todo está emasculado hasta el punto del absurdo, y los alemanes sonríen solo en el Oktoberfest?
