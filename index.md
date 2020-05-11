@@ -1,3 +1,4 @@
+![Octocat](9e63-e0027c6160bf_200x200.png)
 # Compras en Berlín
 
 En Berlín, no tiene que esforzarse por saber qué traer de la capital alemana como recuerdo. Hay una gran cantidad de tiendas de recuerdos, mercados de pulgas y las compras en Berlín siempre son un evento inolvidable.
