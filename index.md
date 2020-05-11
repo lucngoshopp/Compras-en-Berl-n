@@ -1,4 +1,4 @@
-#Compras en Berlín
+# Compras en Berlín
 
 En Berlín, no tiene que esforzarse por saber qué traer de la capital alemana como recuerdo. Hay una gran cantidad de tiendas de recuerdos, mercados de pulgas y las compras en Berlín siempre son un evento inolvidable.
 
@@ -6,7 +6,7 @@ Casas de estilo gótico, la ciudad de piedra (¡incluso en una de las arterias p
 
 Pero sea como fuere: en Alemania venden los mejores zapatos de hombre, automóviles durante siglos y el chocolate más delicioso. Entre la jungla de piedra es fácil encontrar de moda de las mejores marcas y mercados de pulgas. Estamos listos para mostrar!
 
-###Recuerdos
+### Recuerdos
 
 Los recuerdos de Berlín están asociados, como de costumbre, con lugares famosos.
 
@@ -23,11 +23,11 @@ Aquí hay algunos puntos de referencia donde se encuentran pequeñas boutiques, 
 El distrito de Prenzlauer Berg está en Kastanien Straße, Kollwizplatz y Helmholtzplatz.
 Friedrichshain - Boxhagener Platz, Schöneberg - en Motzstrasse y Goltz Strasse, Distrito Mitte: calles cercanas a la estación de metro Weinmeister Strasse (línea U8). Por supuesto, en Berlín hay una gran selección no solo de marcas alemanas, sino también internacionales de todo el mundo.
 
-![Branching](https://www.google.com/url?sa=i&url=https%3A%2F%2Fkuku.travel%2Fcountry%2Fgermaniya%2Fgoroda-i-kurorty-germaniya%2Fberlin%2Fshopping-v-berline-populyarnye-ulicy-tc-i-magaziny%2F&psig=AOvVaw3Gn1we4tp4rwVp8Kz8pue0&ust=1589304912791000&source=images&cd=vfe&ved=0CAIQjRxqFwoTCODb6rOsrOkCFQAAAAAdAAAAABAI)
+![Branching](1-350_263.jpg)
 
 Sus gastos definitivamente excederán lo esperado. No podrás comprar cerveza sin salchichas, un vestido sin sandalias sofisticadas. Abastecerse de dinero, tiempo y una nueva maleta.
 
-###Ropas y zapatos
+### Ropas y zapatos
 
 En Berlín (¡aunque esta no es la capital de la moda! ¡E incluso si él no reclama este título!) Puedes comprar ropa para una billetera diferente. Grueso: y delgado: H&M. Muy a menudo, los turistas vienen aquí por ropa del segmento de precio medio y zapatos alemanes.
 
@@ -43,7 +43,7 @@ Una buena ventaja para bbw. La talla 52 es muy popular en Alemania, por lo que t
 
 Busque trajes deportivos y de esquí, así como equipos y.
 
-###Reloj
+### Reloj
 
 Comprar un reloj suizo es más rentable en Alemania que en Rusia. Entonces, en Berlín, las famosas marcas caras "Tissot", "Carrera" tienen un precio inicial de alrededor de 1,000 euros, en Moscú, oscila entre 1,400 euros. Por cierto, si solicita relojes originales a través de una tienda en línea (en este momento también debe estar en Alemania, preferiblemente en la misma ciudad desde donde realiza el pedido), entonces le costarán entre un 10 y un 15 por ciento menos. Entregado dentro de los tres días.
 
