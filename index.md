@@ -1,4 +1,4 @@
-![Octocat](9e63-e0027c6160bf_200x200.png)
+![Octocat](b7d826a85_200x200.png) 
 
 # Compras en Berlín
 
